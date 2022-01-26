@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ninfamorales
-- 🌱 I’m currently learning to be a Front End Developer.
+- 🌱 I’m currently looking for opportunities to work as Front End Developer Trainee.
 - 💞️ I’m looking to collaborate on projects with a social impact or for small businesses. 
 - 📫 You can reach me through email: ninfammorales@gmail.com
 
